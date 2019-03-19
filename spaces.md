@@ -25,3 +25,11 @@
 - http://sanjose.impacthub.net
 - (506) 2234-2226
 - https://www.facebook.com/ImpactHubSJO/
+
+## cowork.cr
+
+- Oficentro La Sabana, San José
+- http://cowork.cr
+- info@cowork.cr
+- 50622912651
+- https://www.facebook.com/Cowork.cr/
