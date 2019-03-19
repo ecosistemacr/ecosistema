@@ -6,17 +6,18 @@
 - https://creasala.com
 - https://www.facebook.com/creasalacoworking
 - creasala.chavala@gmail.com
+- (506) 2234-9064
 
 ## Nómada Oeste
 
 - Momentum Lindora, Frente al Banco Lafise. 
-- Teléfono: 4700-3819
+- (506) 4700-3819
 - nomadaoeste@nomadaclub.com
 
 ## Nómada Urbano
 
 - Momentum Lindora, contiguo a Clínica Rejuvenese.
-- Teléfono: 2282-9111.
+- (506) 2282-9111.
 - nomadaurbano@nomadaclub.com
 
 ## ImpactHub San José (Impactico)
@@ -31,5 +32,5 @@
 - Oficentro La Sabana, San José
 - http://cowork.cr
 - info@cowork.cr
-- 50622912651
+- (506) 2291-2651
 - https://www.facebook.com/Cowork.cr/
