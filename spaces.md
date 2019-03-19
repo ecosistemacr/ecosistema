@@ -24,6 +24,7 @@
 
 - Los Yoses, San Pedro, San José
 - http://sanjose.impacthub.net
+- info.sanjose@impacthub.net 
 - https://www.facebook.com/ImpactHubSJO/
 - (506) 2234-2226
 
