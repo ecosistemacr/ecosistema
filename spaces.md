@@ -10,13 +10,13 @@
 
 ## Nómada Oeste (Lindora)
 
-- Momentum Lindora, Frente al Banco Lafise. 
+- frente al Banco Lafise, Momentum Lindora, Lindora, San José
 - nomadaoeste@nomadaclub.com
 - (506) 4700-3819
 
 ## Nómada Urbano (Lindora)
 
-- Momentum Lindora, contiguo a Clínica Rejuvenese.
+- contiguo a Clínica Rejuvenese, Momentum Lindora, Lindora, San José
 - nomadaurbano@nomadaclub.com
 - (506) 2282-9111
 
@@ -30,8 +30,16 @@
 
 ## cowork.cr
 
-- Oficentro La Sabana, San José
+- Oficentro La Sabana, La Sabana, San José
 - http://cowork.cr
 - info@cowork.cr
 - https://www.facebook.com/Cowork.cr/
 - (506) 2291-2651
+
+## Laborable
+
+- Urban Plaza, Lindora, San José
+- http://www.laborable.co/es/
+- recepcionlaborable@laborable.co
+- https://www.facebook.com/pg/LaborableCR/
+- (506) 4036-5700
