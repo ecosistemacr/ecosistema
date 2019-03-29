@@ -43,3 +43,11 @@
 - recepcionlaborable@laborable.co
 - https://www.facebook.com/pg/LaborableCR/
 - (506) 4036-5700
+
+## Republic
+
+- SIGMA Business Center, San Pedro, San José
+- http://republic.cr
+- info@republic.cr
+- https://www.facebook.com/republicspacecr/
+- (506) 4001-1950
